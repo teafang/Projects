@@ -1,2 +1,2 @@
 # Projects
-Hey it's Taylor! Thanks for visiting my site.
+Thanks for visiting my site.
